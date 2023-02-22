@@ -1,1 +1,1 @@
-# Hi there my is Britney. 
+# Hi there my name is Britney. 
